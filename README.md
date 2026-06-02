@@ -1,2 +1,0 @@
-# Burgas
-Burgas raiting
